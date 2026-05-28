@@ -45,4 +45,4 @@ We may update these Terms from time to time. Continued use of the Service after 
 
 ## 9. Contact
 
-For questions, contact: your-email@example.com
+For questions, contact: shohruh.yuldashov.2004@gmail.com
